@@ -1,0 +1,1 @@
+# labor_1_kiindulas_szerveroldali
